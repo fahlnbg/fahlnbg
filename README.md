@@ -9,7 +9,7 @@ I code jailbreak tweaks for fun.
 
 * [Facebook](https://fb.com/fahlnbg)
 
-* [Twitter](https://twitter.com/fahlnbg)
+* [X](https://x.com/fahlnbg)
 * [Email](mailto:fahlnbg@gmail.com)
 * [Reddit](https://www.reddit.com/user/fah_no1)
 
